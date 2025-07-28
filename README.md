@@ -1,0 +1,2 @@
+# IdeaPad_Slim5i_300x250_2
+IdeaPad_Slim5i_300x250_2
